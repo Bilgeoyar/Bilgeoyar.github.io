@@ -1,0 +1,2 @@
+# Bilgeoyar.github.io
+ıly
